@@ -1,1 +1,23 @@
-# Havet-i-plasten
+# Havet i plasten
+
+Havet, hjemmet til millioner av dyr. Havet blir ofte sett på som et Utopia for dyrene som bor der, men havet er dessverre ikke det utopiske stedet det en gang var. Nå er ikke havet bare hjem til mange av verdens dyr, men også hjem til ca. 8 millioner ton plast. Så i denne teksten så skal jeg forklare hvorfor plasten ikke kan bli i havet og hva vi kan gjøre for å bli kvitt den.
+
+Du tenker kanskje ikke så mye over det men nesten alt du kjøper inneholder plastikk eller er pakket inn i plast, og dette er fordi plastikk er et supert produkt. Plastikk holder maten din fersk og er ekstremt slite sterkt så det er ikke rart at det blir brukt så ofte. Problemet kommer når plastikk ikke blir resirkulert. Det som skiller plastikk ut ifra andre type innpakninger er at plastikk nedbrytes over lang tid. Plastikk flasker for eksempel bruker 450 år for å bli nedbrutt og dette er dessverre ikke alt. En ting er at plast tar lang tid til å bli nedbrutt, men det som virkelig gjør det farlig er når det kommer til dyrelivet.
+
+I 2019 ble en død hval funnet på en strand i Filipinene. I magen så var det funnet 40kg plast. Hvalen døde av at all plasten den hadde spist hadde blitt liggende i magen uten å bli fordøyd heilt til magen var full. Dette skjer ikke bare med hvaler også dette skjer med de fleste havdyrene som lever rundt plast. De tror at plast er mat og spiser seg til døde. Dette skjedde fordi vi som mennesker har vært så uansvarlig med plastbruken vår har dette ført til at mye av plasten har havnet uti havet der havdyr spiser plasten, blir fanget i plasten og dør. Det verste av alt er jo at selv om havdyrene ikke spiser plasten så kan den fortsatt være farlig for dem. Se for eksempel hos skilpaddene. Fiskere finner stadig skilpadder som har fått plast sugerør fast i nesen og det er helt forferdelig for skilpaddene fordi når nesene blir blokkert så skader det puste evnene til skilpadden og kan føre til interne blødninger.
+
+Det er heldigvis ikke sånn at ingenting blir gjort med det da. Det er flere miljøaktivister og organisasjoner som gjør sitt beste for å fjerne plast fra havet. En av de mer suksessfulle organisasjonene er “The Ocean Cleanup”. “The Ocean Cleanup” er en “non-profit” organisasjon som ble stiftet i 2013 og har som mål å fjerne 90% av verdens flytende plastikk innen 2040. Dette prøver de å gjøre med et sjø-rense-system som er avbildet under. For å ha råd til å forske på dette prosjektet så selger dem plastikken dem samler inn som resirkulert plast. Organisasjon har også vunnet flere priser for prosjektet.
+
+Men plast er jo ikke bare dårlig. Det er jo ikke sånn at det bare er negative sider med plast. Plast er egentlig ganske så miljøvennlig i forhold til andre løsninger. Ta en plastikk pose for eksempel. For å nøytralisere miljøpåvirkningen til en plastikk pose så må du gjenbruke en papirpose tre ganger og et handlenett 11 ganger. Det å gjenbruke poser så mye er det noe som noen synes er veldig lett å gjøre, samtidig som andre synes at det er nesten helt umulig. Poenget er at plastikk kan være et veldig miljøvennlig produkt hvis det blir håndtert riktig. Så det som er viktigst hvis du bruker plast er å resirkulere det.
+
+Plast i sjøen er et viktig problem som virkelig trenger å bli tatt seriøst hvis vi vil beholde det rike dyrelivet i havet, men heldigvis så er det noen som er villig til å gjøre noen med problemet. For det er ikke bare noen få som kan redde havet alene. Vi må alle hjelpe til litt. Om det er noen så lite som å pante plast flasker etter bruk eller å bruke handlenett istedenfor plastposer. Det som ofte utgjør den største forskjellen er de minste grepene blant de fleste personene.
+
+Kilder:
+
+- [https://oceanservice.noaa.gov/hazards/marinedebris/plastics-in-the-ocean.html](https://oceanservice.noaa.gov/hazards/marinedebris/plastics-in-the-ocean.html)
+- [https://www.worldwildlife.org/magazine/issues/fall-2019/articles/plastic-in-the-ocean](https://www.worldwildlife.org/magazine/issues/fall-2019/articles/plastic-in-the-ocean)
+- [https://theoceancleanup.com/](https://theoceancleanup.com/)
+- [https://chariotenergy.com/blog/how-long-until-plastic-decomposes/](https://chariotenergy.com/blog/how-long-until-plastic-decomposes/)
+- [https://www.bbc.com/news/av/science-environment-47666059](https://www.bbc.com/news/av/science-environment-47666059)
+- [https://education.nationalgeographic.org/resource/great-pacific-garbage-patch](https://education.nationalgeographic.org/resource/great-pacific-garbage-patch)
+- [https://stanfordmag.org/contents/paper-plastic-or-reusable](https://stanfordmag.org/contents/paper-plastic-or-reusable)
